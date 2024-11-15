@@ -6,7 +6,7 @@
  </p>
  
  <a href="https://chat.whatsapp.com/DFmm1OBboewBk9kEDBrfNv">
- <img alt="𝕐𝔼𝕊𝕊𝔼ℝ 𝕄𝔻" height="500" src="https://files.catbox.moe/eou4n8.jpeg".
+ <img alt="𝕐𝔼𝕊𝕊𝔼ℝ 𝕄𝔻" height="450" src="https://files.catbox.moe/eou4n8.jpeg".
 
 </h1> 
 <p align="center">ɪ ɪɴᴛʀᴏᴅᴜᴄᴇ <b>𝕃
